@@ -1,2 +1,2 @@
 # bu2chu.github.com
-留下点社么
+记录个人心情
